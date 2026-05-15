@@ -1,4 +1,4 @@
-# 
+# professional Executor for geckoterminal sniper bot | low-cap-gem-detection & buy-pressure-analysis is the best geckoterminal sniper bot, featuring low-cap-gem-detection and
 
 
 
